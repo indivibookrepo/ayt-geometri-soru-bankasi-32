@@ -1,0 +1,1 @@
+# ayt-geometri-soru-bankasi-32
